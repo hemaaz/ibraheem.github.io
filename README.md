@@ -3,8 +3,6 @@
 - Still under updates for the certifications and project
 - It Is open for any recommendation for the part of projects and certifications because i have no ideas
 
-It looks like you're building a solid portfolio with some great certifications and projects! Here’s how we can refine and expand your list to make it sound even more impressive:
-
 ---
 
 **Certifications:**
